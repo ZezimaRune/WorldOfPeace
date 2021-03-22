@@ -1,2 +1,2 @@
 # WorldOfPeace
-Peace around the world
+Peace around the world for ever
